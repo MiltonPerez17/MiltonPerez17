@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MiltonPerez17
+- 👀 I’m interested in Design and Product Development.
+- 🌱 I’m currently learning new CAD softwares options to make designs more efficient.
+- 💞️ I’m looking to collaborate on new projects that impact our current and future time. 
+- 📫 How to reach me: you can send me a meail to mperez@drivencenter.com
